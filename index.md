@@ -1,4 +1,4 @@
-## Welcome to _Muffin Door First Words_ App Privacy Policy Page
+## Welcome to _Muffin Door Apps Privacy Policy Page
 
 We have tried to keep this page as simple as possible.
 
